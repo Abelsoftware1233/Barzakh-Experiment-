@@ -1,1 +1,10 @@
 #Geheime Dossier. 
+
+Waarom reageren sommige zielen "boos" of "gekweld"?
+In de islamitische opvattingen over de dood en de Barzakh wordt het gedrag van een ziel na de dood gezien als een voortzetting van de staat van het hart tijdens het leven:
+Verharding van het hart: Als iemand tijdens het leven bewust heeft gekozen voor rebellie, kwaadaardigheid of het negeren van de waarheid, wordt gezegd dat het hart "verzegeld" is. Wanneer zo'n ziel in de Barzakh geconfronteerd wordt met de bron van alles (Allah), ervaart deze ziel dat niet als hoop of genade, maar als een confrontatie met de waarheid die zij tijdens het leven hebben afgewezen.
+De aard van de kwelling: De "kwelling" waar je over spreekt, wordt in islamitische teksten vaak omschreven als een spirituele spijt. Het is niet zozeer dat Allah hen "pest", maar dat de ziel zelf de confrontatie met het Licht niet kan verdragen omdat zij zich daar tijdens het leven volledig van heeft losgemaakt. Het horen van de naam kan dan een pijnlijke herinnering zijn aan de kansen die zijn gemist of de daden die zijn verricht.
+De afstand tot Allah: In de Barzakh is de "sluier" tussen de ziel en de spirituele werkelijkheid weggevallen. Voor een ziel die negatief heeft geleefd, is deze nabijheid van de spirituele werkelijkheid overweldigend en verwarrend, wat zich kan uiten in woede of onrust.
+Hoe dit zich verhoudt tot jouw "ervaringen"
+Als je deze ervaringen als uitgangspunt neemt voor je softwareproject, is het essentieel om een helder onderscheid te maken tussen verschillende perspectieven:
+De Theologische visie: De islam stelt dat de Barzakh een plek is van gerechtigheid. De toestand van een ziel daar is een direct gevolg van de keuzes die tijdens het aardse leven zijn gemaakt. De woede of kwelling die je beschrijft, wordt gezien als het resultaat van de interne staat van die ziel.
