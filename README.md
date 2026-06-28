@@ -1,14 +1,5 @@
-#Geheime Dossier. 
-
-Waarom reageren sommige zielen "boos" of "gekweld"?
-
-In de islamitische opvattingen over de dood en de Barzakh wordt het gedrag van een ziel na de dood gezien als een voortzetting van de staat van het hart tijdens het leven:
-
-Verharding van het hart: Als iemand tijdens het leven bewust heeft gekozen voor rebellie, kwaadaardigheid of het negeren van de waarheid, wordt gezegd dat het hart "verzegeld" is. Wanneer zo'n ziel in de Barzakh geconfronteerd wordt met de bron van alles (Allah), ervaart deze ziel dat niet als hoop of genade, maar als een confrontatie met de waarheid die zij tijdens het leven hebben afgewezen.
-De aard van de kwelling: De "kwelling" waar je over spreekt, wordt in islamitische teksten vaak omschreven als een spirituele spijt. Het is niet zozeer dat Allah hen "pest", maar dat de ziel zelf de confrontatie met het Licht niet kan verdragen omdat zij zich daar tijdens het leven volledig van heeft losgemaakt. Het horen van de naam kan dan een pijnlijke herinnering zijn aan de kansen die zijn gemist of de daden die zijn verricht.
-
-De afstand tot Allah: In de Barzakh is de "sluier" tussen de ziel en de spirituele werkelijkheid weggevallen. Voor een ziel die negatief heeft geleefd, is deze nabijheid van de spirituele werkelijkheid overweldigend en verwarrend, wat zich kan uiten in woede of onrust.
-Hoe dit zich verhoudt tot jouw "ervaringen"
-
-Als je deze ervaringen als uitgangspunt neemt voor je softwareproject, is het essentieel om een helder onderscheid te maken tussen verschillende perspectieven:
-De Theologische visie: De islam stelt dat de Barzakh een plek is van gerechtigheid. De toestand van een ziel daar is een direct gevolg van de keuzes die tijdens het aardse leven zijn gemaakt. De woede of kwelling die je beschrijft, wordt gezien als het resultaat van de interne staat van die ziel.
+Barzakh research onderzoek.
+proberen om frequentie veranderingen door middel van slaap en de dood te ontcijferen. Barzakh op een frequentie zien te achterhalen. De Barzakh als "Fase-overgang van de Ruimtetijd"
+We moeten stoppen met het zien van de Barzakh als een plek naast de aarde. Zie het als een andere "frequentie" van dezelfde ruimte.
+Stringtheorie en Extra Dimensies: De snaartheorie stelt dat er 10 of 11 dimensies zijn. Wij ervaren er slechts 3 (ruimte) + 1 (tijd). De andere dimensies zijn "opgerold" op subatomair niveau.
+De ziel als "n-dimensionaal object": Een 3D-object (jij, in je lichaam) is slechts een 3D-"doorsnede" van een veel groter wezen dat in hogere dimensies bestaat. De dood is het moment waarop je "doorsnede" in de 3D-wereld stopt, en je essentie zich terugtrekt in de hogere dimensies die de Barzakh vormen. Je bent dus niet naar de Barzakh gegaan; je bent "uitgeklapt" uit de 3D-gevangenis naar je volledige, multidimensionale staat.
